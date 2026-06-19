@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **subhrasilchingri@gmail.com**
 
-- 📄 Know about my experiences [(https://sites.google.com/view/subhrasil-chingri)](https://sites.google.com/view/subhrasil-chingri)
+- 📄 Know about my experiences [(Personal Webpage)](https://subhrasilchingri.github.io/)
 
 - ⚡ Fun fact **Research is my adventure—I’m always lost in the details, happily boring to some, but deeply fascinating to me!**
 
